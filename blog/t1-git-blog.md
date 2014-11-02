@@ -6,7 +6,7 @@
 
 The power of git Github and the command line
 
-My first week at the coomand line
+My first week on the command line
 
 11/2/2014
 
