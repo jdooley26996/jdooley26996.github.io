@@ -2,7 +2,7 @@ Jim's Blog on Shereef's fireside chat
 
 To learn and grow
 
-
+11/2/2014
 
 After watching Shereef’s fireside chat my take is that the DBC is a completely different educational and learning experience. Its a very opened minded concept and is constantly evolving and I believe will continue to change because of the feedback  they are open to. It is a total learning experience mind, body, coding and emotional intelligence.
 
