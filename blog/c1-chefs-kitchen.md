@@ -17,6 +17,7 @@ for that time to come and it is here way to go DBC.
 I am so excited to work in this kind of working environment, I know it will be tough and have reflected on how hard it might get but I am confident that if I keep my open mindset and dedicate myself
 to the team and learning not just code but about my fellow cohorts and myself . Life is a journey and this is the one path that will challenge me but thats ok thats part of the growing and learning process.
 
+
 Im a little nervous but its a good nervous, this will be a great overall experience. Although I live in Long Island New York which is a suburb, this will be my third commute to the Big Apple. The first was traveling
 by bus and 3 trains to midtown to my high school Power Memorial Academy for 4 years, the second journey was working in a network technology unit for the city. Both great experiences. Looking forward to my third commute, I will use my commuting time for reading and napping.
 
